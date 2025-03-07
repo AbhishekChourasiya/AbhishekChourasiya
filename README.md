@@ -1,4 +1,4 @@
-### Hello World 👋 It's Abhishek Chourasiya(officially known as Abhishek Kumar)!
+### Hello World 👋 It's Abhishek Chourasiya (Also known as Abhishek Kumar)
 
 <br/>
 
